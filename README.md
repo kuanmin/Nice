@@ -1,0 +1,107 @@
+# Nice
+
+📍Day 1 — 2/6（五）
+桃園機場國泰cx479，21:15起飛
+23:25到香港赤鱲角機場
+
+📍Day 1 — 2/7（六）休息、調時差
+00:25，國泰航空cx289，香港赤鱲角機場，起飛
+早上7:05到法蘭克福機埸
+早上12:00法蘭克福機埸起飛
+下午13:30抵達尼斯機場
+機場坐捷運到飯店，放行李。
+行程:
+ 漫步英人散步大道、舊城區（Vieux Nice）
+ 晚餐推薦：Le Plongeoir（海景餐廳）
+住宿:
+ibis budget Nice Californie Lenval (https://maps.app.goo.gl/XJs1hK1o1F52XKX46) 
+2間房，每間24m2，含早餐。
+
+📍Day 2 — 2/8（日）濱海自由城 海灣遊船 + 最美藝術小鎮: 聖保羅德旺斯
+吃完飯店早餐9點
+坐地鐵到濱海自由城Villefranche Bay，
+參加港灣遊船(航程約1小時)
+中午餐廳:
+下午租車:
+開去聖保羅(Saint-Paul-de-Vence)(1.5小時)
+參觀聖保羅，法國最美藝術小鎮。
+晚餐:
+晚餐後，開20分鐘去晚上民宿
+住宿:
+Le Moulin Camoula (https://maps.app.goo.gl/z3HJWTZU5WcmLtfX7)
+2間房，每間30m2，含早餐。
+
+📍Day 3 — 2/9（一） 葡萄酒 + 香水製作
+吃完民宿早餐9點
+開車5分鐘到酒莊
+參觀酒莊Vineyard Saint Jeannet - Domaine des Hautes Hills
+接著要去體驗製作香水。
+之前，先去吃午餐，餐廳Le Lavoir (https://maps.app.goo.gl/LDMR4upvQURv9zop8)距離約50分鐘
+用完午餐，開車6分鐘到
+國際香水品牌總部Studio des Fragrances Galimard Grasse(https://maps.app.goo.gl/4qDcvnqXCX4HSGJk8)
+參加香水工坊的製作香水體驗
+享受完製作香水體驗。
+開車到飯店
+住宿:
+Hôtel Les Galets  (https://maps.app.goo.gl/s1irwquoeVB9b6ST6)距離約1小時又50分鐘
+1間房，有廚房，50m2，無早餐。
+(旁邊有超市，採買隔天早餐)
+
+📍Day 4 — 2/10（二） 松露饗宴 + 亞維農: 教皇宮與聖貝內澤橋
+吃完早餐9點
+開車前往亞維農avignon（約 2 小時）
+亞維農的越南餐廳Cu tí (https://maps.app.goo.gl/NXtu5pogxnJW7eqY7)用午餐
+午餐過後，參觀 Avignon 教皇宮與聖貝內澤橋
+晚餐餐廳L'Épicerie de Ginette (當地法菜)
+住宿:
+Villa Victor Hugo by Odomo (https://maps.app.goo.gl/ADNLX6gT1kPfrjvm6)
+1間房，60m2，無早餐。
+(旁邊有超市，採買隔天早餐)
+
+📍Day 5 — 2/11（三） 橄欖油莊園 + 加爾橋 + 羅馬競技場 +  Maison Carrée
+吃完早餐9點
+開車去橄欖油莊園Moulin CastelaS (https://maps.app.goo.gl/CuT98FVCjQucGfvH7) (約40分鐘)
+橄欖油莊園品油、買油、體驗後
+開車40分鐘前往參觀 加爾橋Pont du Gard  (https://maps.app.goo.gl/5S3xzDhQDzENKg4U8)
+讚嘆美景、瘋狂拍照之後
+開車30分鐘前往尼姆 Nîmes (https://maps.app.goo.gl/c9VMJLzfVtLu2HbY6)
+參觀雄偉的羅馬露天競技場 Arènes de Nîmes與神殿Maison Carrée (https://maps.app.goo.gl/R8ZczUxYTFB4Npem7)
+完全進入泿漫瘋狂之後，
+開車50分鐘到亞爾Arles (https://maps.app.goo.gl/egojMgdD6yoWaCUH9)
+參觀亞爾的舊城、羅馬競技場、梵谷步道
+晚餐越南餐廳Le Vietnam (https://maps.app.goo.gl/BQsSZsbgihqu2z7y6)
+晚上住在亞爾
+住宿:
+Entire townhouse in Arles (https://maps.app.goo.gl/TeM4m5SBwi8KCqyWA)
+2層樓的公寓，無早餐。
+(旁邊有超市，採買隔天早餐)
+
+📍Day 6 — 2/12（四） 坎城 + 昂蒂布
+吃完早餐9點
+開去坎城Cannes (約2.5小時)
+參觀坎城和昂蒂布 Antibes ，這2個城市
+午餐在城市中找餐廳吃
+大約下午，開車前往
+開去濱海自由城飯店入住 (約1小時)
+飯店在正海邊，有絕佳海景。
+晚餐去海邊餐廳: 西班牙小食酒吧 Topaze Bar Nice (https://maps.app.goo.gl/Frr23Y3YLonB19W49)
+住宿:
+Apartament with sea view(https://maps.app.goo.gl/2Tq4kSmtZhhrEQxu9)
+1間房，80m2。無早餐
+(旁邊有超市，採買隔天早餐)
+
+📍Day 7 — 2/13（五） 義大利人氣市集 + 花卉之都:聖雷莫
+吃完早餐9點
+開去吃名的義大利的文蒂米利亞（Ventimiglia）週五市集 🇮🇹(約50分鐘)
+布落格介紹:
+https://www.travelogbook.com/2023/07/16/%E6%84%8F%E5%A4%A7%E5%88%A9%E6%96%87%E8%92%82%E7%B1%B3%E5%88%A9%E4%BA%9Eventimiglia%E6%88%B6%E5%A4%96%E5%B8%82%E9%9B%86-%E5%91%A8%E4%BA%94%E9%99%90%E5%AE%9A/
+買好買滿後，開車去聖雷莫(Sanremo) 花卉之城 (約30分鐘)
+參觀聖雷莫
+住宿:
+Marconi 442 (https://maps.app.goo.gl/rS2xQToSpMTPQqXL6)
+1間房，66m2，無早餐。
+(旁邊有超市，採買隔天早餐)
+
+📍Day 8 — 2/14（六） 芒通檸檬節 + 摩納哥
+吃完早餐9點
+開車去芒通Menton (約40分鐘)
