@@ -315,4 +315,11 @@
 * Ventimiglia Friday Market — 義大利最大/著名的週五市集，早上開始，攤位密集。([Italian Riviera][5])  
 * Oceanographic Museum（Monaco）— 海洋博物館為大型展館、建議預留約2小時參觀，官網有詳細參觀資訊。([Musée Océanographique de Monaco][6])  
   
-
+---  
+  
+[1]: https://whc.unesco.org/en/list/344/?utm_source=chatgpt.com "Pont du Gard (Roman Aqueduct)"  
+[2]: https://pontdugard.fr/en?utm_source=chatgpt.com "The Pont du Gard - A symbol of Roman engineering"  
+[3]: https://www.sitesdexception.fr/en/sites/arenes-de-nimes/?utm_source=chatgpt.com "The Amphitheatre of Nîmes, the best–preserved roman ..."  
+[4]: https://www.tripadvisor.com/Attraction_Review-g187154-d243552-Reviews-La_Maison_Carree_Nimes-Nimes_Gard_Occitanie.html?utm_source=chatgpt.com "La Maison Carrée Nîmes (2025) - All You Need to Know ..."  
+[5]: https://italian-riviera.com/en/market-of-ventimiglia/?utm_source=chatgpt.com "Ventimiglia market: the complete shopping guide"  
+[6]: https://musee.oceano.org/en/practical-info/?utm_source=chatgpt.com "Ticketing - Musée Océanographique de Monaco"  
