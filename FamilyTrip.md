@@ -308,7 +308,7 @@
   
 ---  
   
-### 參考／重要資料來源（方便你核對景點實際開放或活動）  
+### 參考／重要資料來源 
   
 * Pont du Gard（UNESCO / 官方）— 加爾橋為羅馬時期大型水道橋，UNESCO 世界遺產，遊客資訊與停車相關說明。([UNESCO World Heritage Centre][1])  
 * Arènes de Nîmes / Maison Carrée — 尼姆羅馬競技場與 Maison Carrée 保存良好、常有導覽與開放時間（請現場或官網確認季節性時段）。([sitesdexception.fr][3])  
