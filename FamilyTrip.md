@@ -247,16 +247,38 @@
   
 ---  
   
-## 📍Day 10 — 2/16（一）  
+## 📍Day 10 — 2/16（一）    
+    
+上午｜港灣遊船 + 修道院高地漫步  
   
-**天際與城市文化巡禮（Cimiez、La Gare du Sud、Basilique、Parc）**  
+09:00 早餐後使用 24 小時票  
   
-🕘 早餐後 09:00 出發（建議買 24 小時公車/輕軌票 €5）  
+搭地鐵前往 Villefranche Bay 濱海自由城  
+⛵ 參加 港灣遊船（約 1 小時）  
   
-* **Monastère Notre Dame de Cimiez（聖母院修道院）**：修道院與修道院花園、古羅馬遺跡近鄰，適合早晨漫步、看展與拍攝修道院簡潔的建築線條。  
-* 回市區午餐：**LA GARE DU SUD**（改造自舊火車站的美食市集，餐飲選擇多）  
-* **Basilique Notre Dame de l’Assomption（尼斯聖母聖殿）**：漂亮的宗教建築，內部雕刻與祭壇值得一看。  
-* **Parc Honoré d'Estienne d'Orves**：城市公園，提供不同視角看尼斯與港灣的機會。  
+返回市區前往  
+🕍 Monastère Notre Dame de Cimiez 修道院  
+🌿 逛修道院庭園與高處景觀  
+  
+中午｜LA GARE DU SUD 午餐  
+  
+回市區，在 美食廣場 LA GARE DU SUD 用餐  
+  
+下午｜尼斯地標 & 城市公園  
+  
+參觀 Basilique Notre Dame de l’Assomption 尼斯聖母院  
+  
+前往 Parc Honoré d'Estienne d'Orves（城市綠地+小丘景色）  
+  
+傍晚至晚間｜Èze 山城半日遊  
+  
+搭 Bus 82 / 112 ➜ Èze-Village（埃茲山城）（約 35 分）  
+🌄 懸崖村莊  
+🌼 Jardin Exotique 異國植物園  
+🌸 Fragonard 香水工坊  
+（從山城入口步行上坡約 15 分鐘）  
+  
+回到尼斯市區享用晚餐  
   
 小貼士：尼斯公車/電車網絡方便，24小時票划算；若要爬城堡山或Cimiez區，穿好走的鞋。  
   
