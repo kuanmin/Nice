@@ -511,19 +511,8 @@ Maredo Steakhouse
   
 🏨 飯店入住  
   
-📍 Lindner Hotel Cologne City Plaza（Hyatt 集團）  
+📍 Lindner Hotel Cologne City Plaza（Hyatt 凱悅集團）  
 2 間房，每間 24㎡，含早餐  
-  
-📍 2/20（五）科隆 → 法蘭克福 → ✈️返家  
-早上：悠閒早餐後  
-  
-前往科隆火車站搭車 → 抵達法蘭克福機場  
-（車程：1～1.5 小時）  
-  
-✈️ 12:05  
-  
-國泰 CX288 起飛返家  
-結束完美旅程！  
   
 ---  
   
