@@ -248,7 +248,9 @@
 ---  
   
 ## 📍Day 10 — 2/16（一）    
-    
+
+**Villefranche-sur-Mer 港灣遊船 + Èze Village（埃茲山城）**  
+
 上午｜港灣遊船 + 修道院高地漫步  
   
 09:00 早餐後使用 24 小時票  
@@ -286,38 +288,242 @@
   
 ## 📍Day 11 — 2/17（二）  
   
-**Villefranche-sur-Mer 港灣遊船 + Èze Village（埃茲山城）**  
+✈️ 10:20 尼斯 Nice 機場起飛 → 11:55 抵達法蘭克福 Frankfurt  
   
-🕘 早餐後 09:00 出發  
+🛤 前往科隆 Cologne  
   
-* 搭地鐵/公車到 **Villefranche Bay** 參加港灣遊船（航程約1小時），能從海上近距離觀賞蔚藍海灣與彩色港口景。  
-* 午餐後前往 **Èze-Village（埃茲山城）**（公車 82 或 112，車程約35分鐘）  
+抵達後轉火車前往科隆（約 1 小時）  
+抵達後 → 前往飯店放行李：  
   
-  * 亮點：懸崖山城、香水工坊 Fragonard（可快速參觀/購買）、Jardin Exotique 異國植物園。  
-  * 小提醒：從村口走上山約15分鐘，坡陡且石板路，穿舒適防滑鞋；山頂視野極佳，適合拍海天線條與中世城景。  
+🏨 Hotel NH Collection Köln Mediapark  
   
-🏨 住宿：Nice（Holiday Inn Express）  
+🎡 下午：科隆（Cologne）市區散步 + 大教堂周邊亮點  
+⭐ 科隆值得逛的景點（擇一或多選）  
+1. 科隆大教堂 Cologne Dom（必訪）  
+  
+哥德式建築巨作、世界文化遺產，可入內參觀  
+💡 如體力OK，可登上教堂南塔 533 階，欣賞萊茵河全景。  
+  
+2. 盧德維希美術館 Museum Ludwig  
+  
+擁有豐富現代藝術、歐洲最強的畢卡索收藏之一  
+  
+3. 老城區 Altstadt 散步  
+  
+色彩繽紛的歷史建築、咖啡館、精釀啤酒店一條街  
+  
+4. 河岸散策 Rheinpromenade  
+  
+沿萊茵河散步，看夕陽非常舒服  
+  
+5. 霍亨索倫橋 Hohenzollernbrücke（鎖橋）  
+  
+科隆經典地標，可與大教堂合影  
+  
+🍽 科隆晚餐推薦（選一）：  
+Brauhaus FRÜH am Dom（你原本選的）  
+  
+招牌料理：豬腳、烤豬排、德式自家啤酒 Kölsch  
+  
+可補充的備選餐廳  
+  
+Gaffel am Dom（超人氣德國酒館）  
+  
+Peters Brauhaus（傳統科隆菜）  
+  
+Bei Oma Kleinmann（巨大豬排 Schnitzel）  
+  
+若時間充裕，可加碼：波昂 Bonn（科隆南方 20–25 分鐘）  
+💡 建議傍晚快閃 1–2 點：  
+  
+波昂老城區 Altstadt  
+  
+貝多芬故居 Beethoven-Haus  
+  
+波昂大教堂 Bonner Münster  
   
 ---  
+
+## 📍Day 12 — 2/18（三）    
+
+**科隆 → 阿亨 Aachen → 三國界點 → 馬斯垂克 Maastricht → 荷蘭別墅住宿**  
+
+🚗 早上：於科隆大教堂前 SIXT 取車  
   
-## 📍Day 12 — 2/18（三）  
+SIXT Autovermietung Köln City/Hilton am Dom  
   
-**尼斯 → 法蘭克福 → 科隆**  
+🏰 第一站：阿亨 Aachen（約 1 小時車程）  
+⭐ 必逛景點  
   
-✈️ 10:20 尼斯機場起飛 → 11:55 抵達法蘭克福  
-🛤 轉火車到科隆（Cologne），行李寄放飯店後晚餐推薦：**Brauhaus FRÜH am Dom**（傳統德式啤酒餐館）— 吃豬腳、德式香腸、搭配科隆啤酒很地道。  
-🏨 住宿：Hotel NH Collection Köln Mediapark（1間房，52m²，含早餐）  
+阿亨大教堂 Aachen Dom（UNESCO）  
+查理大帝加冕地：歐洲最古老的教堂之一  
+  
+阿亨市政廳 Rathaus Aachen  
+中古世紀氛圍濃厚  
+  
+阿亨溫泉區 Karlsbrunnen  
+有天然溫泉散出的水霧，很有特色  
+  
+老城區散步（滿滿德國風）  
+  
+🍽 阿亨餐廳推薦  
+  
+Aachener Brauhaus（德式料理）  
+  
+Hanswurst（德式香腸料理）  
+  
+Van den Daele（甜點咖啡館，環境漂亮）  
+  
+🌍 第二站：三國界點 Dreiländereck（德/荷/比交界）  
+  
+這裡有：  
+  
+花園迷宮 Labyrint Drielandenpunt（網紅點）  
+  
+森林步道 + 高地展望台  
+  
+「站在三國」一次踩三國邊界拍照  
+  
+停留時間建議：30–60 分鐘  
+  
+🏙 第三站：馬斯垂克 Maastricht（荷蘭）  
+  
+荷蘭最有歐洲古城味道的城市之一！  
+  
+⭐ 必逛景點  
+  
+Vrijthof 廣場（城市中心）  
+  
+聖瑪爾定教堂 Dominicanen 書店  
+→ 世界最美書店之一（改建自古老教堂）  
+  
+老橋 Sint Servaasbrug  
+  
+馬斯垂克老城區  
+散步購物、咖啡、美食  
+  
+丘陵地區郊外風景（車窗就很美）  
+  
+🍽 馬斯垂克餐廳推薦  
+  
+Café Zondag（荷蘭小酒館）  
+  
+De Brandweer（工業風咖啡/餐廳）  
+  
+Restaurant Harry’s（高端，有米其林等級）  
+  
+🏡 晚上：入住荷蘭度假別墅  
+  
+📍 Limburgerstraat 106、6267 CG Cadier en Keer, Netherlands  
+✔ 120 m² 別墅  
+✔ 雙臥室  
+✔ 自己煮晚餐  
+✔ 旁邊有超市（可採買食材）  
   
 ---  
-  
 ## 📍Day 13 — 2/19（四）  
   
-**科隆（Cologne）一日遊**  
+**馬斯垂克 → 烈日 Liège → 蒙紹 Monschau → 科隆還車 → 科隆過夜**  
   
-* 建議重點：**科隆大教堂 Kölner Dom**（哥德式巨作、登塔俯瞰城市）、萊茵河畔漫步、巧克力博物館（Schokoladenmuseum）。  
-* 晚上回到同一間飯店休息。  
+早上在別墅料理早餐  
+享受荷蘭鄉村慢生活  
   
-🏨 住宿：Hotel NH Collection Köln Mediapark  
+🏙 第一站：馬斯垂克市區（晨間散步）  
+  
+可逛：  
+  
+聖母廣場 Onze Lieve Vrouweplein  
+  
+河岸散步  
+  
+市場廣場 Market Square  
+  
+停留：1 小時  
+  
+🏙 第二站：烈日 Liège（比利時）  
+  
+距離約 25–30 分鐘  
+港口城市＋大學生城市組合  
+  
+⭐ 必逛景點  
+  
+Gare de Liège-Guillemins 火車站  
+→ 世界最美車站之一（西班牙建築師 Calatrava）  
+  
+老城區街區  
+  
+聖巴泰勒米教堂  
+  
+Montagne de Bueren 374階梯（可看景）  
+  
+🍽 餐廳推薦  
+  
+Le Pain Quotidien（輕食）  
+  
+Une Gaufrette Saperlipopette（烈日鬆餅超有名）  
+  
+Café Lequet（比利時傳統小酒館）  
+  
+🏘 第三站：蒙紹 Monschau（德國童話山城）  
+  
+從烈日前往約 40–50 分鐘  
+德國最美小鎮之一（超像明信片）  
+  
+⭐ 必逛景點  
+  
+半木構房屋街區 Old Town  
+  
+Rote Haus 紅屋（地標）  
+  
+蒙紹城堡 Monschau Castle（可登高）  
+  
+溪邊咖啡館散步  
+  
+🧁 甜點推薦  
+  
+Monschau Mustard Senfladen（特色芥末商店）  
+  
+Café Kaulard  
+  
+Hüftgold Café（蛋糕好吃）  
+  
+🚗 傍晚：開車回科隆（17:00–17:30）  
+18:00  
+  
+於取車地點 SIXT Hilton am Dom 還車  
+  
+🍽 晚餐（科隆）＋ 大採購時間  
+推薦採購地點  
+  
+REWE / ALDI / Lidl / EDEKA（超市）  
+  
+DM / Rossmann（日用品、保養品非常好買）  
+  
+科隆主車站商場（買伴手禮）  
+  
+晚餐餐廳推薦  
+  
+Gilden im Zims（老城區地道料理）  
+  
+Mash Restaurant（美式牛排）  
+  
+Maredo Steakhouse  
+  
+🏨 飯店入住  
+  
+📍 Lindner Hotel Cologne City Plaza（Hyatt 集團）  
+2 間房，每間 24㎡，含早餐  
+  
+📍 2/20（五）科隆 → 法蘭克福 → ✈️返家  
+早上：悠閒早餐後  
+  
+前往科隆火車站搭車 → 抵達法蘭克福機場  
+（車程：1～1.5 小時）  
+  
+✈️ 12:05  
+  
+國泰 CX288 起飛返家  
+結束完美旅程！  
   
 ---  
   
