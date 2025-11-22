@@ -210,6 +210,7 @@
   
 🕑 回尼斯還車（約40分鐘車程）  
 🏨 住宿（接下來3晚都住這）：Nice海邊公寓  
+[📍 Google Maps](https://maps.app.goo.gl/5VC3KkRBqsCpfJqK9)  
   
 ---  
   
