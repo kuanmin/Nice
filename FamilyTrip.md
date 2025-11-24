@@ -96,6 +96,7 @@
 **Hôtel Les Galets**  
 [📍 Google Maps](https://maps.app.goo.gl/s1irwquoeVB9b6ST6)  
 距離約1小時50分鐘，房內有廚房，50m²，無早餐（旁邊有超市）。  
+飯店可以停車  
   
 ---  
   
@@ -125,7 +126,61 @@
 🏨 住宿：  
 **Villa Victor Hugo by Odomo**  
 [📍 Google Maps](https://maps.app.goo.gl/ADNLX6gT1kPfrjvm6)  
-1間房，60m²，無早餐（旁邊有超市）。  
+1間房，60m²，無早餐（旁邊有超市）。   
+
+市區過夜停車。  
+停車建議（Avignon 市中心）  
+  
+Parking Palais des Papes  
+  
+地點：18 Place du Palais / 2 rue Ferruce。   
+avignon-tourisme.com  
++2  
+avignon-tourisme.com  
++2  
+  
+類型：地下停車場。   
+avignon-tourisme.com  
++1  
+  
+容量：825 車位。   
+avignon-tourisme.com  
+  
+高度限制：1.90 m。   
+avignon-tourisme.com  
+  
+價格：24小時票約 €19.30（視情況可能有所浮動）。   
+Grand Avignon Tourisme  
+  
+Parking des Halles  
+  
+這是一個全天候24小時開放的多層停車場。   
+avignon-tourisme.com  
+  
+地址：18, place Pie（通過 Rue Thiers 進入）。   
+avignon-tourisme.com  
++1  
+  
+費用：根據 Avignon 官方資訊，是 24 小時票。   
+avignon-tourisme.com  
+  
+Garage Catto（Courtine 區）  
+  
+如果你願意停在城牆外（比較安靜、車位可能更容易），這是 Avignon 推薦的夜間停車位置。   
+avignon-tourisme.com  
+  
+聯絡方式（預約或確認車位）：+33 (0)4 90 82 16 11 或 email garage.dcatto@wanadoo.fr  
+。   
+avignon-tourisme.com  
+  
+P+R 免費停車（Park & Ride）  
+  
+Parking Italiens：大約 1,600 個免費車位，適合白天停，晚上情況要確認。   
+Avignon et moi  
+  
+Parking Île Piot：1,100 個免費位，但通常是用作日間停車。   
+arip.fr  
++1  
   
 ---  
   
