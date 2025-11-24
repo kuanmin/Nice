@@ -55,7 +55,15 @@
   
 * **Fondation Maeght 瑪格基金會**：法南最重要的現代藝術博物館之一，收藏米羅、夏卡爾、賈科梅蒂等大師作品，庭園與建築本身也是藝術品。  
 * **La Colombe d’Or 餐廳**：傳奇的藝術家餐廳，牆上掛滿畢卡索、馬諦斯、夏卡爾等原作。  
-* 小鎮石板路蜿蜒、巷弄間滿是畫廊、手作陶藝、香氛店與冰淇淋店，十分迷人。  
+* 小鎮石板路蜿蜒、巷弄間滿是畫廊、手作陶藝、香氛店與冰淇淋店，十分迷人。
+
+停車:  
+1. 小鎮停車  
+* 停車：市區外圍有免費停車場（Place de la Grande Fontaine、Parking de la Chapelle）  
+* 小鎮內多為步行區，車子需停外圍，步行進入老城  
+2. Fondation Maeght (藝術博物館)  
+* 停車：館方有專屬停車場，免費  
+* 小提醒：假日較擁擠，早點到  
   
 🍽 晚餐於小鎮享用浪漫法式晚餐。  
   
@@ -73,6 +81,7 @@
 🍷 **Vineyard Saint Jeannet - Domaine des Hautes Hills**  
 （距離民宿約5分鐘）  
 品嚐當地特色葡萄酒，莊園環繞山丘，景色開闊。可學習法國釀酒文化與品酒技巧。  
+莊園有免費停車場  
   
 🍽 午餐：**Le Lavoir**  
 [📍 Google Maps](https://maps.app.goo.gl/LDMR4upvQURv9zop8)  
@@ -81,6 +90,7 @@
 💐 **Galimard 香水工坊（Grasse）**  
 [📍 Google Maps](https://maps.app.goo.gl/4qDcvnqXCX4HSGJk8)  
 香水之都格拉斯的百年品牌，體驗自製專屬香水課程。完成後可帶走自己調製的香氛瓶，是極具紀念價值的體驗。  
+工坊有免費停車位  
   
 🏨 住宿：  
 **Hôtel Les Galets**  
@@ -102,7 +112,15 @@
   
 🍽 午餐：越南餐廳 **Cu Tí**  
 [📍 Google Maps](https://maps.app.goo.gl/NXtu5pogxnJW7eqY7)  
-🍽 晚餐：**L'Épicerie de Ginette**（當地人氣法菜）  
+🍽 晚餐：**L'Épicerie de Ginette**（當地人氣法菜） 
+
+1. 教皇宮 Palais des Papes  
+停車：付費停車場 Parking Palais des Papes，步行1–3分鐘到景點  
+收費：約2 €/小時  
+免費：老城區周邊小路可能有免費路邊停車，但位置非常有限  
+2. 聖貝內澤橋 Pont Saint-Bénézet  
+停車：附近付費停車場 Parking Pont d’Avignon / Quai de la Ligne  
+收費：約2 €/小時  
   
 🏨 住宿：  
 **Villa Victor Hugo by Odomo**  
@@ -135,6 +153,18 @@
 * **Maison Carrée（古羅馬神殿）**：保存極佳的古羅馬神殿範例，外觀與比例很有古典美，適合短暫參觀拍照並體會羅馬城市面貌。([Tripadvisor][4])  
 * 拍照提示：競技場外側與近距離立面都很壯觀；Maison Carrée 的廟前廣場適合低角度拍攝，背景乾淨。  
 * 小提醒：若想進入競技場內部，留意季節性開放時間與導覽時段（現場可租語音導覽）。  
+
+停車  
+1. Pont du Gard  
+停車：橋兩側均有付費停車場（左岸停車場可近距離接近橋底）  
+收費：停車+入園套票約10–12 €  
+2. 尼姆 Nîmes  
+Arènes de Nîmes：Parking Arènes (付費，靠近競技場)  
+Maison Carrée：步行可到多個市中心付費停車場（Parking République, Parking Jules Guesde）  
+收費：約1.5–2 €/小時  
+3. Arles（亞爾）  
+市中心付費停車場：Parking de la République 或 Parking du Forum  
+路邊停車：部分免費但通常限時1–2小時  
   
 ### 晚上 — 前往亞爾 Arles（約50分鐘）  
   
@@ -160,6 +190,15 @@
 * 特色：古城牆、地中海小港、著名的 Picasso 博物館（Musée Picasso）與狹窄石板巷弄。  
 * 小提示：Antibes 的舊城區很適合慢慢逛、市集與手作店很多。  
   
+停車  
+1. Cannes — La Croisette / Port Canto / Vieux Port  
+停車：沿 La Croisette 付費停車場（Parking Gray d’Albion, Palais des Festivals）  
+收費：約3 €/小時  
+路邊停車：短時可找，但多為付費  
+2. Antibes — Picasso 博物館 / Old Town  
+停車：Parking du Safranier 或 Parking Gravette（市中心付費）  
+路邊：有限免費位，建議早上或傍晚  
+  
 🍽 午餐：市區自由找餐廳  
 🕑 下午前往濱海自由城飯店入住（約1小時）— 飯店位於海邊，房間海景絕佳。  
 🍽 晚餐：Topaze Bar Nice（海邊西班牙小食酒吧）  
@@ -180,6 +219,13 @@
 * 小貼士：注意包包、貴重物品（人多時小偷機會較高）；有些皮件或名牌商品為仿貨，購買時請斟酌。  
   
 🕑 購物結束後開車前往聖雷莫（約30分鐘）  
+  
+停車  
+1. Ventimiglia Friday Market  
+停車：市場附近臨時付費停車，少量免費路邊位（早到才有）  
+2. Sanremo（La Pigna 老城）  
+停車：市中心付費停車場 Parking Garibald 或 Parking Ariston  
+老城小巷多步行區，免費路邊停車幾乎沒有  
   
 ### 聖雷莫 Sanremo（花卉之城）  
   
@@ -207,6 +253,15 @@
 * **Casino de Monte-Carlo（賭場）**：外觀華麗，內部需付費或服裝要求，若只是拍照可在外拍照。  
 * **Oceanographic Museum（海洋博物館）**：建在懸崖上，展示大型水族箱與海洋標本，參觀時間可預留約2小時。([Musée Océanographique de Monaco][6])  
 * 拍照提示：俯瞰港口、豪華遊艇與賭場外觀皆是經典畫面。  
+
+停車  
+1. Menton — 老城區 / 市集  
+停車：Parking du Carei, Parking de la Gare（付費）  
+免費路邊：有限，早點去會有位置  
+2. Monaco — 皇宮 / 賭場 / 海洋博物館  
+停車：Casino de Monte-Carlo 附近有大型地下付費停車場  
+收費：約3–4 €/小時  
+免費：幾乎沒有，摩納哥路邊停車位極難  
   
 🕑 回尼斯還車（約40分鐘車程）  
 🏨 住宿（接下來3晚都住這）：Nice海邊公寓  
@@ -412,6 +467,20 @@ Café Zondag（荷蘭小酒館）
 De Brandweer（工業風咖啡/餐廳）  
   
 Restaurant Harry’s（高端，有米其林等級）  
+
+停車  
+1. 科隆 Cologne  
+科隆大教堂附近：Parking am Dom (地下，付費)  
+老城區：路邊有限免費位，多為付費  
+河岸散步區：一般路邊停車不建議  
+2. 阿亨 Aachen  
+Aachen Dom：Parking Eurogress Aachen / Elisabetstrasse，付費  
+老城區街邊部分可短時免費（30–60分鐘）  
+3. 三國界點 Dreiländereck  
+停車場免費，有標示  
+4. 馬斯垂克 Maastricht  
+市中心：Parking Vrijthof 或 Maastrichter Heiden，付費  
+老城區路邊有限免費位  
   
 🏡 晚上：入住荷蘭度假別墅  
   
@@ -487,6 +556,17 @@ Monschau Mustard Senfladen（特色芥末商店）
 Café Kaulard  
   
 Hüftgold Café（蛋糕好吃）  
+  
+停車  
+1. 馬斯垂克 Maastricht  
+市中心：Parking Vrijthof 或 Maastrichter Heiden，付費  
+老城區路邊有限免費位  
+2. 蒙紹 Monschau  
+市中心停車場：P1 或 P2（付費）  
+老城小巷：幾乎不允許停車  
+3. 烈日 Liège（比利時）  
+Gare de Liège-Guillemins：站前地下停車場（付費）  
+老城區路邊有限免費位，通常早上較容易  
   
 🚗 傍晚：開車回科隆（17:00–17:30）  
 18:00  
