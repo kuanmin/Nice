@@ -298,10 +298,10 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
 上城堡山公園  
 🌅 欣賞海景、城市全景  
 🕗（建議在閉園 20:00 前下山）  
-  
-晚上｜尼克市區美食酒吧  
-  
-晚餐於 Topaze Bar Nice（西班牙小食酒吧）  
+    
+Hanoi Opera - Resto Viet (越式)  
+[📍 Google Maps](https://maps.app.goo.gl/AuLgZ4A6E6VenvBV6) 
+官網:  [link](https://hanoiopera.com) 星期日有開  
   
 沿英國人大道散步回飯店  
 🏨 住宿：Nice海邊公寓  
