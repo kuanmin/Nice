@@ -268,6 +268,7 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
 收費：約3–4 €/小時  
 免費：幾乎沒有，摩納哥路邊停車位極難  
   
+(星期日，超市都沒開。要先買星期日的早餐)  
 🕑 回尼斯還車（約40分鐘車程）  
 🏨 住宿（接下來3晚都住這）：Nice海邊公寓  
 [📍 Google Maps](https://maps.app.goo.gl/5VC3KkRBqsCpfJqK9)  
