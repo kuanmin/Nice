@@ -31,8 +31,8 @@
   * **Cours Saleya 市集**（花卉、市集、當地特產）  
   * **聖雷帕拉塔主教座堂 Cathédrale Sainte-Réparate**  
   
-🍽 晚餐推薦：**Le Plongeoir**  
-一間建在海上礁岩上的浪漫餐廳，海景絕佳、料理精緻，是尼斯的地標級餐廳之一。  
+🍽 晚餐：**高級**、**非常高級**、**真的狠高級**   
+大家穿美美帥帥用餐   
   
 🏨 住宿：  
 **ibis budget Nice Californie Lenval**  
