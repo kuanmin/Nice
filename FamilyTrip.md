@@ -65,6 +65,9 @@
 * 停車：館方有專屬停車場，免費  
 * 小提醒：假日較擁擠，早點到  
   
+午餐:  
+[📍 Google Maps](https://maps.app.goo.gl/EBC3wx6jZJrs7UxA7)   
+  
 🍽 晚餐於小鎮享用浪漫法式晚餐。  
   
 🏡 晚上住宿：  
