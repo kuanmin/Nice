@@ -383,7 +383,7 @@ Hanoi Opera - Resto Viet (越式)
 科隆經典地標，可與大教堂合影  
   
 🍽 科隆晚餐推薦（選一）：  
-Brauhaus FRÜH am Dom（你原本選的）  
+Brauhaus FRÜH am Dom（你原本選的） (預約位子了)   
   
 招牌料理：豬腳、烤豬排、德式自家啤酒 Kölsch  
   
