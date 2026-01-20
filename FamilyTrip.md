@@ -343,6 +343,10 @@ Hanoi Opera - Resto Viet (越式)
 （從山城入口步行上坡約 15 分鐘）  
   
 回到尼斯市區享用晚餐  
+
+晚餐:  
+川菜館  
+[📍 Google Maps](https://maps.app.goo.gl/aVu8cYVnWacPfy3H8) 
   
 小貼士：尼斯公車/電車網絡方便，24小時票划算；若要爬城堡山或Cimiez區，穿好走的鞋。  
   
