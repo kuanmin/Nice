@@ -28,6 +28,8 @@
 港口沿岸，走城堡山公園Colline du Château (免費，但6點關門)  
 然後沿海岸走。  
 晚上吃大餐。  
+
+晚上在飯店登記義大利住宿  
   
 🛬 抵達後搭乘捷運（Tram Line 2）前往飯店放行李。  
   
@@ -44,6 +46,7 @@
   
 🍽 晚餐：**高級**、**非常高級**、**真的狠高級**   
 大家穿美美帥帥用餐   
+
   
 🏨 住宿：  
 **ibis budget Nice Californie Lenval**  
@@ -53,7 +56,33 @@
 ---  
   
 ## 📍Day 2 — 2/8（日）  
+
+早餐在飯店  
+飯店退房是12:00  
+取車時間是09:00  
+地點:(旻和順新去取車)  
+[google map](https://maps.app.goo.gl/SF8kEBSCGMMZmYXH7)  
+上路前，去家樂福(星期日有開)，買點水、餅乾、車上吃的  
   
+開往聖保羅德旺斯（約1.5小時） 
+### 🎨 聖保羅德旺斯 Saint-Paul-de-Vence — 法國最美藝術小鎮  
+到小鎮，停車  
+停車:  
+1. 小鎮停車  
+* 停車：市區外圍有免費停車場（Place de la Grande Fontaine、Parking de la Chapelle）  
+* 小鎮內多為步行區，車子需停外圍，步行進入老城  
+2. Fondation Maeght (藝術博物館)  
+* 停車：館方有專屬停車場，免費  
+* 小提醒：假日較擁擠，早點到
+走走  
+吃午餐:  
+[📍 Google Maps](https://maps.app.goo.gl/EBC3wx6jZJrs7UxA7)   
+  
+走走之後，晚餐去旁邊的一個小鎮吃印度菜  
+[google map](https://maps.app.goo.gl/GrbwcqUsKHYmEfJB8)  
+  
+吃完晚餐，入住飯店    
+
 **聖保羅德旺斯藝術村**  
   
 🍳 早餐後 09:00 出發  
@@ -66,7 +95,7 @@
   
 * **Fondation Maeght 瑪格基金會**：法南最重要的現代藝術博物館之一，收藏米羅、夏卡爾、賈科梅蒂等大師作品，庭園與建築本身也是藝術品。  
 * **La Colombe d’Or 餐廳**：傳奇的藝術家餐廳，牆上掛滿畢卡索、馬諦斯、夏卡爾等原作。  
-* 小鎮石板路蜿蜒、巷弄間滿是畫廊、手作陶藝、香氛店與冰淇淋店，十分迷人。
+* 小鎮石板路蜿蜒、巷弄間滿是畫廊、手作陶藝、香氛店與冰淇淋店，十分迷人。  
 
 停車:  
 1. 小鎮停車  
@@ -78,8 +107,12 @@
   
 午餐:  
 [📍 Google Maps](https://maps.app.goo.gl/EBC3wx6jZJrs7UxA7)   
+
+走走之後，晚餐去旁邊的一個小鎮吃印度菜  
+[google map](https://maps.app.goo.gl/GrbwcqUsKHYmEfJB8)  
   
-🍽 晚餐於小鎮享用浪漫法式晚餐。  
+吃完晚餐，入住飯店    
+ 
   
 🏡 晚上住宿：  
 **Le Moulin Camoula**  
