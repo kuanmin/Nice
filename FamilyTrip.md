@@ -16,11 +16,22 @@
   
 **香港 → 法蘭克福 → 尼斯**  
 ✈️ CX289　00:25 起飛 → 07:05 抵達法蘭克福  
-✈️ 轉機 LH1066　12:00 起飛 → 13:30 抵達尼斯 Côte d’Azur Airport  
+✈️ 轉機 LH1066　12:00 起飛 → 13:30 抵達尼斯 Côte d’Azur Airport 
+從機場，坐地面列車，到Grand Arénas站 (這段免費)  
+下站，找Lignes d’Azur 自動售票機，買儲值卡(卡體2歐)，買了，用手機儲次數，儲50次(因為2月16日和17日可以再用)  
+買卡[影片](https://www.youtube.com/watch?v=r1WuVRwHd-A)  
+坐車車站Lenval Hôpital，飯店就在站旁邊。飯店14:00就可以入住。  
+休息30分鐘，出發去吃:  
+[ASIA FOOD](https://maps.app.goo.gl/stvVQaNMMHermnuF7)  
+(坐l3線或l2線，到終點站Port Lympia)  
+吃飽，  去旁邊超市(Intermarché EXPRESS Nice、MONOP、carrfure)買水、飲料、甜點  
+港口沿岸，走城堡山公園Colline du Château (免費，但6點關門)  
+然後沿海岸走。  
+晚上吃大餐。  
   
 🛬 抵達後搭乘捷運（Tram Line 2）前往飯店放行李。  
   
-### 下午行程  
+### 行程  
   
 * **英人散步大道 Promenade des Anglais**  
   尼斯最著名的濱海大道，綿延7公里，湛藍海灣與棕櫚樹相映。傍晚時分夕陽灑落，最適合悠閒散步與拍照。  
