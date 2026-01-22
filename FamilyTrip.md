@@ -156,7 +156,7 @@
 🏨 住宿：(飯店旁邊超市營業:0700 - 2000)    
 **Hôtel Les Galets**  
 [📍 Google Maps](https://maps.app.goo.gl/s1irwquoeVB9b6ST6)  
-距離約1小時50分鐘，房內有廚房，50m²，無早餐（旁邊有超市）。  
+房內有廚房，50m²，無早餐（旁邊有超市）。  
 飯店可以停車  
   
 ---  
