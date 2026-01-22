@@ -309,7 +309,18 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
 * 拍照建議：市集色彩豐富、人文快照與街頭小吃都好拍。  
 * 小貼士：注意包包、貴重物品（人多時小偷機會較高）；有些皮件或名牌商品為仿貨，購買時請斟酌。  
   
-🕑 購物結束後開車前往聖雷莫（約30分鐘）  
+🕑 購物結束後  
+午餐吃拉麵:  
+[google map](https://maps.app.goo.gl/d1FGNLkE1dAnVMr78)  
+  
+吃飽，沿海岸，開車前往聖雷莫（約30分鐘）  
+先經過飯店、放行李、再進市區  
+
+晚餐:  
+好吃日本拉麵:  
+[google map](https://maps.app.goo.gl/PNgFzjhoWHc67Wwz6)  
+
+晚上到超市採買隔天早餐  
   
 停車  
 1. Ventimiglia Friday Market  
@@ -334,7 +345,7 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
   
 ### 芒通 Menton  
   
-* 特色：靠近義法邊界的小鎮，以檸檬文化與花卉活動聞名（若遇節慶會更熱鬧）。你原訂要參觀的 **Menton Craftsman Market**，是展示在地手工藝與食品的好地方。  
+* 特色：靠近義法邊界的小鎮，以檸檬文化與花卉活動聞名（若遇節慶會更熱鬧）。 **Menton Craftsman Market**，是展示在地手工藝與食品的好地方。  
 * 拍照提示：色彩明亮的老城建築與海港很適合早晨光線。  
   
 🕑 前往摩納哥 Monaco（約20分鐘）  
