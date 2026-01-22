@@ -347,16 +347,25 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
   
 * 特色：靠近義法邊界的小鎮，以檸檬文化與花卉活動聞名（若遇節慶會更熱鬧）。 **Menton Craftsman Market**，是展示在地手工藝與食品的好地方。  
 * 拍照提示：色彩明亮的老城建築與海港很適合早晨光線。  
+
+
+吃午餐:  
+泰式:  
+[google map](https://maps.app.goo.gl/VdZ1ctzU7Wa8Vy239)  
   
 🕑 前往摩納哥 Monaco（約20分鐘）  
-  
+    
 ### 摩納哥重點（王宮區、蒙地卡羅賭場、海洋博物館、港口）  
   
 * **Prince's Palace（皇宮）**：每天有換崗儀式（時間依季節），皇宮前的廣場與俯瞰港口的視角壯觀。  
 * **Casino de Monte-Carlo（賭場）**：外觀華麗，內部需付費或服裝要求，若只是拍照可在外拍照。  
 * **Oceanographic Museum（海洋博物館）**：建在懸崖上，展示大型水族箱與海洋標本，參觀時間可預留約2小時。([Musée Océanographique de Monaco][6])  
 * 拍照提示：俯瞰港口、豪華遊艇與賭場外觀皆是經典畫面。  
-
+  
+回去尼斯吃晚餐:  
+拉麵:  
+[google map](https://maps.app.goo.gl/b2fNKwJcxymvMsG4A)  
+  
 停車  
 1. Menton — 老城區 / 市集  
 停車：Parking du Carei, Parking de la Gare（付費）  
@@ -366,7 +375,7 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
 收費：約3–4 €/小時  
 免費：幾乎沒有，摩納哥路邊停車位極難  
   
-(星期日，超市都沒開。要先買星期日的早餐)  
+(星期日，超市有開。)    
 🕑 回尼斯還車（約40分鐘車程）  
 🏨 住宿（接下來3晚都住這）：Nice海邊公寓  
 [📍 Google Maps](https://maps.app.goo.gl/5VC3KkRBqsCpfJqK9)  
