@@ -162,19 +162,36 @@
 ---  
   
 ## 📍Day 4 — 2/10（二）  
+
+早餐，在飯店自己煮。  
+不用吃太飽，我們會去馬賽吃好吃午餐  
+
+出發去馬賽  
+到馬賽的守護聖母聖殿、府看海景  
+再到海邊:  
+聖尼古拉堡壘  
+歐洲和地中海文明博物館  
+超級大賣場  
   
-**法式料理饗宴 + 亞維農古城巡禮**  
+午餐:  
+Dragon délice - restaurant chinois - Marseille 龙小吃 马赛中餐  
+[google map](https://maps.app.goo.gl/DojxfmF4Umpucwmt9)  
+
+吃完出發去亞維農  
+
+
   
-🍳 早餐後出發（約2小時車程）前往亞維農 Avignon。  
+**亞維農古城巡禮**  
+
   
 🏰 **教皇宮 Palais des Papes**  
 14世紀教皇遷居於此，宮殿壯麗，為歐洲最大哥德式宮殿之一。  
 🌉 **聖貝內澤橋 Pont Saint-Bénézet（又名斷橋）**  
 曾橫跨隆河，如今僅剩半段，傳說由少年聖人貝內澤奇蹟般建成，是亞維農的象徵。  
   
-🍽 午餐：越南餐廳 **Cu Tí**  
+🍽 晚餐：越南餐廳 **Cu Tí**  
 [📍 Google Maps](https://maps.app.goo.gl/NXtu5pogxnJW7eqY7)  
-🍽 晚餐：**L'Épicerie de Ginette**（當地人氣法菜） 
+
 
 1. 教皇宮 Palais des Papes  
 停車：付費停車場 Parking Palais des Papes，步行1–3分鐘到景點  
@@ -215,6 +232,9 @@
 * **Maison Carrée（古羅馬神殿）**：保存極佳的古羅馬神殿範例，外觀與比例很有古典美，適合短暫參觀拍照並體會羅馬城市面貌。([Tripadvisor][4])  
 * 拍照提示：競技場外側與近距離立面都很壯觀；Maison Carrée 的廟前廣場適合低角度拍攝，背景乾淨。  
 * 小提醒：若想進入競技場內部，留意季節性開放時間與導覽時段（現場可租語音導覽）。  
+  
+採買隔天的早餐  
+  
 
 停車  
 1. Pont du Gard  
