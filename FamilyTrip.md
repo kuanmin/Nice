@@ -225,6 +225,9 @@ Dragon délice - restaurant chinois - Marseille 龙小吃 马赛中餐
 * 亮點簡介：加爾橋是保存極佳的羅馬高架水道橋，三層拱券結構壯觀，為 UNESCO 世界遺產，能想像兩千年前工程規模與美學。([UNESCO World Heritage Centre][1])  
 * 拍照亮點：橋下河岸的反射、橋身遠景與近距離拱洞構圖；若天氣好傍晚金色光線特別迷人。  
 * 實用資訊：入口與停車場分左右岸，若想近看橋體底部與河景可選左岸停車場。([pontdugard.fr][2])  
+
+在尼姆吃午餐:  
+[google map](https://maps.app.goo.gl/f3H4T5ciDYkz6GT4A)  
   
 ### 午後 — 尼姆 Nîmes（車程約30分鐘）  
   
@@ -250,8 +253,11 @@ Maison Carrée：步行可到多個市中心付費停車場（Parking Républiqu
   
 ### 晚上 — 前往亞爾 Arles（約50分鐘）  
   
-* 亞爾的舊城、羅馬遺跡與梵谷步道（Van Gogh trail）很適合傍晚散步，感受古城夜色。  
-  🍽 晚餐：越南餐廳 **Le Vietnam**  
+* 亞爾的舊城、羅馬遺跡與梵谷步道（Van Gogh trail）很適合傍晚散步，感受古城夜色。
+
+晚餐:  
+日本餐廳:  
+[google map](https://maps.app.goo.gl/kzF2veJE3WUtRV4g9)  
   🏨 住宿：Entire townhouse in Arles（2層樓公寓，無早餐，旁邊有超市）  
     
 ---  
