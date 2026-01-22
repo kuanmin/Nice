@@ -214,7 +214,7 @@ Dragon délice - restaurant chinois - Marseille 龙小吃 马赛中餐
   
 🕘 早餐後 09:00 出發  
   
-### 上午 — 橄欖油莊園：Moulin CastelaS  
+### 上午 — 橄欖油莊園：Moulin CastelaS(10點開門)  
   
 * 特色：南法傳統小型油坊，能品嘗到初榨橄欖油（extra virgin）多種風味（草本、果香、辛辣尾韻）。  
 * 拍照提示：油坊的石造壓榨機與橄欖樹林是很棒的鄉村風照片背景。  
