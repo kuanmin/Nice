@@ -17,7 +17,7 @@
     
 ## 📍Day 1 — 2/7（六）休息、調時差  
   
-**香港 → 法蘭克福 → 尼斯**  
+### 行程  
 ✈️ CX289　00:25 起飛 → 07:05 抵達法蘭克福  
   
 領到行李，直接先掛行李，出境。出境的地方:不冷、很多東西可以吃喝、有廁所。
@@ -34,12 +34,15 @@
 港口沿岸，走城堡山公園Colline du Château (免費，但6點關門)  
 然後沿海岸走。  
 晚上吃大餐。  
-
+🍽 晚餐：**高級**、**非常高級**、**真的狠高級**   
+大家穿美美帥帥用餐   
+🏨 住宿：  
+**ibis budget Nice Californie Lenval**  
+[📍 Google Maps](https://maps.app.goo.gl/XJs1hK1o1F52XKX46)  
+2間房，每間24m²，含早餐。  
 晚上在飯店登記義大利住宿  
   
-🛬 抵達後搭乘捷運（Tram Line 2）前往飯店放行李。  
-  
-### 行程  
+### 其它  
   
 * **英人散步大道 Promenade des Anglais**  
   尼斯最著名的濱海大道，綿延7公里，湛藍海灣與棕櫚樹相映。傍晚時分夕陽灑落，最適合悠閒散步與拍照。  
@@ -50,19 +53,12 @@
   * **Cours Saleya 市集**（花卉、市集、當地特產）  
   * **聖雷帕拉塔主教座堂 Cathédrale Sainte-Réparate**  
   
-🍽 晚餐：**高級**、**非常高級**、**真的狠高級**   
-大家穿美美帥帥用餐   
-
-  
-🏨 住宿：  
-**ibis budget Nice Californie Lenval**  
-[📍 Google Maps](https://maps.app.goo.gl/XJs1hK1o1F52XKX46)  
-2間房，每間24m²，含早餐。  
-  
 ---  
   
 ## 📍Day 2 — 2/8（日）  
 
+### 行程  
+  
 早餐在飯店  
 飯店退房是12:00  
 取車時間是09:00  
@@ -71,7 +67,7 @@
 上路前，去家樂福(星期日有開)，買點水、餅乾、車上吃的  
   
 開往聖保羅德旺斯（約1.5小時） 
-### 🎨 聖保羅德旺斯 Saint-Paul-de-Vence — 法國最美藝術小鎮  
+
 到小鎮，停車  
 停車:  
 1. 小鎮停車  
@@ -83,17 +79,20 @@
 走走  
 吃午餐:  
 [📍 Google Maps](https://maps.app.goo.gl/EBC3wx6jZJrs7UxA7)   
+
+走走之後，晚餐去旁邊的一個小鎮，有一些超市，可以補零嘴  
   
-走走之後，晚餐去旁邊的一個小鎮吃印度菜  
+晚餐去旁邊的一個小鎮吃印度菜  
 [google map](https://maps.app.goo.gl/GrbwcqUsKHYmEfJB8)  
   
 吃完晚餐，入住飯店    
 
-**聖保羅德旺斯藝術村**  
+🏡 晚上住宿：  
+**Le Moulin Camoula**  
+[📍 Google Maps](https://maps.app.goo.gl/z3HJWTZU5WcmLtfX7)  
+2間房，每間30m²，含早餐。  
   
-🍳 早餐後 09:00 出發  
-  
-🚗 早上租車，開往聖保羅德旺斯（約1.5小時）  
+### 其它  
   
 ### 🎨 聖保羅德旺斯 Saint-Paul-de-Vence — 法國最美藝術小鎮  
   
@@ -102,30 +101,6 @@
 * **Fondation Maeght 瑪格基金會**：法南最重要的現代藝術博物館之一，收藏米羅、夏卡爾、賈科梅蒂等大師作品，庭園與建築本身也是藝術品。  
 * **La Colombe d’Or 餐廳**：傳奇的藝術家餐廳，牆上掛滿畢卡索、馬諦斯、夏卡爾等原作。  
 * 小鎮石板路蜿蜒、巷弄間滿是畫廊、手作陶藝、香氛店與冰淇淋店，十分迷人。  
-
-停車:  
-1. 小鎮停車  
-* 停車：市區外圍有免費停車場（Place de la Grande Fontaine、Parking de la Chapelle）  
-* 小鎮內多為步行區，車子需停外圍，步行進入老城  
-2. Fondation Maeght (藝術博物館)  
-* 停車：館方有專屬停車場，免費  
-* 小提醒：假日較擁擠，早點到  
-  
-午餐:  
-[📍 Google Maps](https://maps.app.goo.gl/EBC3wx6jZJrs7UxA7)   
-
-走走之後，晚餐去旁邊的一個小鎮，有一些超市，可以補零嘴  
-  
-吃印度菜  
-[google map](https://maps.app.goo.gl/GrbwcqUsKHYmEfJB8)  
-  
-吃完晚餐，入住飯店    
- 
-  
-🏡 晚上住宿：  
-**Le Moulin Camoula**  
-[📍 Google Maps](https://maps.app.goo.gl/z3HJWTZU5WcmLtfX7)  
-2間房，每間30m²，含早餐。  
   
 ---  
   
@@ -181,11 +156,8 @@ Dragon délice - restaurant chinois - Marseille 龙小吃 马赛中餐
 [google map](https://maps.app.goo.gl/DojxfmF4Umpucwmt9)  
 
 吃完出發去亞維農  
-
-
   
 **亞維農古城巡禮**  
-
   
 🏰 **教皇宮 Palais des Papes**  
 14世紀教皇遷居於此，宮殿壯麗，為歐洲最大哥德式宮殿之一。  
